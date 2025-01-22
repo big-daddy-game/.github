@@ -4,9 +4,9 @@ Welcome to **Big Daddy Game**, the ultimate online gaming platform where fun mee
 
 ## Quick Access
 
-### [Big Daddy Game Login](https://gamelogin.in/big-daddy-game)**
-### [Big Daddy Game Register](https://gamelogin.in/big-daddy-game)**  
-### [Big Daddy Game Download](https://gamelogin.in/big-daddy-game)**  
+### [Big Daddy Game Login](https://gamelogin.in/big-daddy-game)
+### [Big Daddy Game Register](https://gamelogin.in/big-daddy-game)
+### [Big Daddy Game Download](https://gamelogin.in/big-daddy-game)
 
 ## Big Daddy Game Referral Code
 **Use Referral Code: `4665213235072`**  
